@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @CKGleeson
+- 👀 I’m studying AI & ML in UL
